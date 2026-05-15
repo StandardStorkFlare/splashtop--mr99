@@ -1,4 +1,4 @@
-# 
+# Splashtop for PC | Splashtop for Windows updated Extension: multi-device-support & file-transfer offers the most advanced Splashtop for PC | Splashtop for Windows extension, with
 
 
 
